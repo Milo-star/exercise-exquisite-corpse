@@ -11,4 +11,6 @@ La tête baissée, il passa les grilles de l'école. Discrètement, il tenta de 
 
 Ouvrant les yeux, il découvrit tous ses camarades **figés comme des statues de pierre**. Lui-même flottait à environ un mètre du sol, comme soulevé par une force cosmique. Il ressentait un grand bien-être, ainsi qu'une puissance inconnue : il comprit qu'il avait le sort de ses bourreaux entre ses mains. Se concentrant, il sentit qu'il lui suffirait de tendre les mains pour \_pulvériser\_ le groupe d'élèves immobilisés ; décidait-il d'utiliser ce pouvoir contre eux? *Y avait-il une autre voie possible ?*
 
- 
+"Pas le temps pour les questions ! Ils n'ont qu'a payer" se dit il. **Louis** \_pulverisa\_ donc ses bourreaux amis ses pouvoirs etant encore trop instables, il fit de meme pour l'ecole pour l'ecole et pour toutes formes de vies dans les 10 kilometres.
+Panique et pris de remors... Non c'est faux il ne regrettait rien, pourquoi s'en vouloir de tuer des gens qui ne faisait rien pour te preserver ?
+Il compris donc sa place, Aujourd'hui **Louis** fera du malheur des autres sont bonheur... 
